@@ -7,4 +7,6 @@ $cd FakeRoot;python2 root.py
 ```
 *Thanks All*
 
-awokawokaokwaokoaw
+Dm If Not Understood
+
+https://instagram.com/mr_juice7
